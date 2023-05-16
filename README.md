@@ -1,0 +1,1 @@
+# Sylvain-labasse-vente-objets-glisse-identity-provider
